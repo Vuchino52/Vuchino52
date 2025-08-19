@@ -7,4 +7,4 @@ But it will get better... I hope.
 
 Fingers crossed
 
-I am the clueless student who doesn't do anything. This is an attempt to get better at coding and get a better understanding.
+I am the clueless student who doesn't do anything. This is an attempt to get better at coding and get a better understanding of the things I type.
